@@ -1,2 +1,0 @@
-# derwiza25
-derwiza
